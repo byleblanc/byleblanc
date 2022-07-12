@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-
+- Hi, I am Bianca 
 - 🌱 I’m currently learning computational thinking
 - 👯 I’m looking to collaborate on my learning
 - 📫 How to reach me:Byaleblanc@gmail.com our bianca.oliveira12@escola.pr.gov.br
